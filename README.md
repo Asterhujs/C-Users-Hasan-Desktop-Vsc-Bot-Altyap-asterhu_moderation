@@ -1,0 +1,1 @@
+# C-Users-Hasan-Desktop-Vsc-Bot-Altyap-asterhu_moderation
